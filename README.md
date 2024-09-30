@@ -18,3 +18,7 @@ I completed the virus code activity. I found it interesting that it spread so fa
 Reflect on your experience designing your Sphero BOLT maze. What challenges did you encounter when designing the maze? How did you overcome them?
 
 I faced no challanges.
+
+# September 30, 2024
+
+My day would be differnt without computer science would be the same since it doesn't really change anything in my life.
