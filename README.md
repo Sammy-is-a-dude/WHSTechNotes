@@ -34,3 +34,7 @@ My day would be differnt without computer science would be the same since it doe
 # October 3, 2024
 
 My day would be differnt without computer science would be the same since it doesn't really change anything in my life.
+
+# October 4, 2024
+
+My day would be differnt without computer science would be the same since it doesn't really change anything in my life.
