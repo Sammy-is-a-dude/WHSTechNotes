@@ -41,4 +41,9 @@ My day would be differnt without computer science would be the same since it doe
 
 # October 7, 2024
 
-My day would be differnt without computer science would be the same since it doesn't really change anything in my life.
+Job Title: Therapy
+Job Description: Clinical and counseling psychologists assess, diagnose, and treat mental, emotional, and behavioral disorders.
+Skills Required: Communication, empathy, patience, listening, etc.
+Education and Experience: at least a master's degree in counseling or a counseling-related field, and also must has complete 3,000 hours of supervised experience in the field of professional counseling.
+Career Growth: Advancing my social skills and abilities to help people.
+Reflection: Nothing, I just wanna learn how to make games for fun.
