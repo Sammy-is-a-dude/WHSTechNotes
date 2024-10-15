@@ -47,3 +47,15 @@ Skills Required: Communication, empathy, patience, listening, etc.
 Education and Experience: at least a master's degree in counseling or a counseling-related field, and also must has complete 3,000 hours of supervised experience in the field of professional counseling.
 Career Growth: Advancing my social skills and abilities to help people.
 Reflection: Nothing, I just wanna learn how to make games for fun.
+
+# October 15, 2024
+
+How can coding improve problem-solving skills? By using it to educate people.
+
+How might understanding code help you in industries that aren’t directly related to technology, such as healthcare, finance, or education? By knowing how to make video game machanics.
+
+How does coding enhance creativity or collaboration? By helping make video games.
+
+Provide examples where coding knowledge might benefit professionals in various fields. Remember to use specific examples and reflect on how coding can impact your future career path, even if it’s not directly related to computer science.
+
+Video game makers.
