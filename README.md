@@ -59,3 +59,12 @@ How does coding enhance creativity or collaboration? By helping make video games
 Provide examples where coding knowledge might benefit professionals in various fields. Remember to use specific examples and reflect on how coding can impact your future career path, even if it’s not directly related to computer science.
 
 Video game makers.
+
+# October 21, 2024
+
+AI helps improve the mechanics in prostetic limbs and transport for blind people.
+AI harms people by making people lazy and ruining people's jobs like writers, aritsts, animators, and gamedevelopers.
+
+# October 28, 2024
+
+Computer science helps the election by counting the votes certaint people have.
