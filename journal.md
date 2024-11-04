@@ -69,3 +69,20 @@ AI harms people by making people lazy and ruining people's jobs like writers, ar
 
 Computer science helps the election by counting the votes certaint people have.
 
+# November 4th, 2024
+
+Why is it important to protect your personal and sensitive information when publishing online?
+
+So people don't sell your information.
+
+What steps can you take to ensure that the information you share on platforms like GitHub or social media remains secure?
+
+By getting a vpn to see if the website is safe.
+
+Have you ever shared something online that you later realized was too personal? How would you handle that differently now?
+
+Nope.
+
+How can you balance being open and collaborative in online spaces (like working with others on coding projects) while still protecting your privacy?
+
+By doing it with people you trust.
