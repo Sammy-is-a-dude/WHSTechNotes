@@ -68,3 +68,9 @@ AI harms people by making people lazy and ruining people's jobs like writers, ar
 # October 28, 2024
 
 Computer science helps the election by counting the votes certaint people have.
+
+# November 12, 2024
+
+Searching up answers. Google has helped me with questions that i struggle with. It also helps me with finding epic pfps.
+
+Politics.
