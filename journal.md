@@ -86,3 +86,18 @@ Nope.
 How can you balance being open and collaborative in online spaces (like working with others on coding projects) while still protecting your privacy?
 
 By doing it with people you trust.
+
+# October 21, 2024
+
+AI helps improve the mechanics in prostetic limbs and transport for blind people.
+AI harms people by making people lazy and ruining people's jobs like writers, aritsts, animators, and gamedevelopers.
+
+# October 28, 2024
+
+Computer science helps the election by counting the votes certaint people have.
+
+# November 12, 2024
+
+Searching up answers. Google has helped me with questions that i struggle with. It also helps me with finding epic pfps.
+
+Politics.
