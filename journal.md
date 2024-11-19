@@ -101,3 +101,8 @@ Computer science helps the election by counting the votes certaint people have.
 Searching up answers. Google has helped me with questions that i struggle with. It also helps me with finding epic pfps.
 
 Politics.
+
+# November 19, 2024
+
+by showing the prices
+IT'S NOT DECEMBER YET STOP 😭😭😭😭
