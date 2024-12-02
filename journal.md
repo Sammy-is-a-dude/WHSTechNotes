@@ -106,3 +106,9 @@ Politics.
 
 by showing the prices
 IT'S NOT DECEMBER YET STOP 😭😭😭😭
+
+# December 2, 2024
+
+This technology concerns me because it makes products look lifeless
+No
+Nothing
