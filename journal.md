@@ -112,3 +112,11 @@ IT'S NOT DECEMBER YET STOP 😭😭😭😭
 This technology concerns me because it makes products look lifeless
 No
 Nothing
+
+# December 9, 2024
+
+brainrot means stuff that makes people dumb or rot kids brains.
+
+slop means slop and lore means the backstory for a character
+
+yes, give your child a time limit on their ipad, idiot.
