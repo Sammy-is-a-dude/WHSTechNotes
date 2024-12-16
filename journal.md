@@ -120,3 +120,7 @@ brainrot means stuff that makes people dumb or rot kids brains.
 slop means slop and lore means the backstory for a character
 
 yes, give your child a time limit on their ipad, idiot.
+
+# December 16, 2024
+
+Yes so i can finally relax for once.
