@@ -124,3 +124,7 @@ yes, give your child a time limit on their ipad, idiot.
 # December 16, 2024
 
 Yes so i can finally relax for once.
+
+# January 8, 2025
+
+I enjoyed being around friends
