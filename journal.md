@@ -128,3 +128,7 @@ Yes so i can finally relax for once.
 # January 8, 2025
 
 I enjoyed being around friends
+
+# January 13, 2025
+
+I think AI should stay away from human jobs since it lessens the oportunity for people to make money like artists, music makers, voice actors, etc. AI should be used to make mechanical limbs for people who are disabled or missing said body parts and that we should improve on the AI to soon one day make working organs or eyes.
