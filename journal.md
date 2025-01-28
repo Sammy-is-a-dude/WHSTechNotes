@@ -136,3 +136,7 @@ I think AI should stay away from human jobs since it lessens the oportunity for 
 # January 22, 2025
 
 I think the ban on TikTok was stupid.
+
+# January 27, 2025
+
+Jimmy broke the car.
