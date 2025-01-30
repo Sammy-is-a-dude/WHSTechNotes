@@ -139,4 +139,10 @@ I think the ban on TikTok was stupid.
 
 # January 27, 2025
 
-Jimmy broke the car.
+
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy    |   Civic   |      Drilled Hole In Gas Tank    |
+| Kayla    |   Sierra   |     Fixed Wrong Problem     |
+| Bart     |  Corolla   |    Left Stains On Carpet |
+| Harrison |   Forester  |     Left The Oil Cap Off |
