@@ -150,3 +150,7 @@ I think the ban on TikTok was stupid.
 # Febuary 11, 2025
 
 I personally wouldn't use AI because that's just replacing the coach's job. Instead, I would make a chart on how well certain players play by doing practice plays. The ones who have lower scores will be trained more and the ones with higher scores will be put into the game.
+
+# Febuary 18,2025
+
+I learned that driving a go kart while playing Mario Kart Music is a wonderful experience.
