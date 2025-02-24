@@ -154,3 +154,7 @@ I personally wouldn't use AI because that's just replacing the coach's job. Inst
 # Febuary 18,2025
 
 I learned that driving a go kart while playing Mario Kart Music is a wonderful experience.
+
+# Febuary 24, 2025
+
+Yes they should organize and teach proper slang.
