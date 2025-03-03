@@ -158,3 +158,7 @@ I learned that driving a go kart while playing Mario Kart Music is a wonderful e
 # Febuary 24, 2025
 
 Yes they should organize and teach proper slang.
+
+# March 3, 2025
+
+I don't exactly remember what happened last friday but I'd say our behavior was fine. Mostly everyone was respectful and the sub seemed happy. They were very kind to us and they were respected from what I remember.
