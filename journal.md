@@ -162,3 +162,7 @@ Yes they should organize and teach proper slang.
 # March 3, 2025
 
 I don't exactly remember what happened last friday but I'd say our behavior was fine. Mostly everyone was respectful and the sub seemed happy. They were very kind to us and they were respected from what I remember.
+
+# March 17, 2025
+
+I used my phone mostly and watched YouTube.
