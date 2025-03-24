@@ -166,3 +166,7 @@ I don't exactly remember what happened last friday but I'd say our behavior was 
 # March 17, 2025
 
 I used my phone mostly and watched YouTube.
+
+# March 24, 2025
+
+No because AI is flawed and it would be better to use a human than a robot.
