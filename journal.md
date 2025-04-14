@@ -182,3 +182,7 @@ I completed Mario's Secret Adventure.
 # April 7, 2025
 
 AI is not going to help students on tests because it can gather misinformation and cause the student to fail. A human tutor would be better than a non human one.
+
+# April 14, 2025
+
+I think it'd be benifical in a way so people don't walk slowly in the halls. But it could also be not benifical if there's an emergency.
