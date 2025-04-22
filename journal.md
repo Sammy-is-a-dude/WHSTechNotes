@@ -186,3 +186,7 @@ AI is not going to help students on tests because it can gather misinformation a
 # April 14, 2025
 
 I think it'd be benifical in a way so people don't walk slowly in the halls. But it could also be not benifical if there's an emergency.
+
+# April 22, 2025
+
+Greetings my art teacher, I am writing this to you because you are a very great teacher. 
