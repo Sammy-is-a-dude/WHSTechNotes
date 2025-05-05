@@ -189,4 +189,8 @@ I think it'd be benifical in a way so people don't walk slowly in the halls. But
 
 # April 22, 2025
 
-Greetings my art teacher, I am writing this to you because you are a very great teacher. 
+Greetings my art teacher, I am writing this to you because you are a very great teacher.
+
+# May 5, 2025
+
+100 people would lose to a gorilla because a gorilla is more powerful and I doubt 100 people are willing to work together.
