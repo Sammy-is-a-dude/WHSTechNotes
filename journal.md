@@ -194,3 +194,7 @@ Greetings my art teacher, I am writing this to you because you are a very great 
 # May 5, 2025
 
 100 people would lose to a gorilla because a gorilla is more powerful and I doubt 100 people are willing to work together.
+
+# May 12, 2025
+
+I think iyt's dangerous it's very dangerous and not a joke. Sticking things where they don't belong can be a hazered if its flamable. It can also damge the chromebook which is school property.
