@@ -198,3 +198,7 @@ Greetings my art teacher, I am writing this to you because you are a very great 
 # May 12, 2025
 
 I think iyt's dangerous it's very dangerous and not a joke. Sticking things where they don't belong can be a hazered if its flamable. It can also damge the chromebook which is school property.
+
+# May 19, 2025
+
+I am not ready for summer because I'm going to be doing moving stuff and it's going to be depressing. At least I'll be able to play Limbus Company freely without having to worry about stupid school.
